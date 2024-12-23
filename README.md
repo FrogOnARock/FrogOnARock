@@ -15,4 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-My name is FrogOnARock, and I am a frog on a rock.
+My name is Mackenzie Rock and it's a pleasure to meet you! I currently attend
+McGill University as a Master of Management Analytics student.
